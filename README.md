@@ -1,2 +1,2 @@
-For my beloved ami
+💚 For my beloved ami 💚
 https://syadv.github.io/YesOrNo/
